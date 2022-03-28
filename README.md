@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xGrqnd
+- 👀 I’m interested in minecraft coding/mods/java
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on minecraft mods/session id
+- 📫 How to reach me discord:
